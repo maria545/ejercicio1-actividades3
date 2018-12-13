@@ -1,2 +1,7 @@
-# ejercicio1-actividades3
+
 Susana Casas
+Sergio Ramos Santonja
+Jesus Aponte
+Iván Daniel Gallego Torres
+
+
